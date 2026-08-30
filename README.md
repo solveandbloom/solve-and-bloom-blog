@@ -1,1 +1,0 @@
-# solve-and-bloom-blog
